@@ -1,0 +1,1 @@
+here we sit like birds in the wilderness, but God is faithful
